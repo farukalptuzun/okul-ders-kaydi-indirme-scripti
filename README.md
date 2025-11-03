@@ -1,0 +1,1 @@
+# okul-ders-kayd--indirme-scripti
